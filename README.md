@@ -5,6 +5,7 @@
 ![alt text](https://github.com/Peter-Kahl/Epistemic-Gatekeepers-as-the-Fourth-Estate-Reining-in-Medias-Unchecked-Epistemic-Power/blob/main/fourth_estate.jpg?raw=true)
 
 by Peter Kahl; independent scholar
+
 Published 27 July 2025
 
 ### Abstract
